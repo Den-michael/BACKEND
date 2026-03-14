@@ -1,1 +1,1 @@
-Den Michael pogi
+Finally I learned how to use github. Grind Grind Grind
